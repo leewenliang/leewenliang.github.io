@@ -1,6 +1,6 @@
 # leewenliang.github.io
-## In memory of whistle-blower in covid-19,Dr.Wenliang Lee
 
+## In memory of whistle-blower in covid-19,Dr.Wenliang Lee
 
 
 
@@ -35,4 +35,6 @@
 ### “我如此哀恸，不是因为他是吹哨人，他普通地有良知，有着普通的善良，见到危机也只敢小声提醒。我们连这样小声提醒的人都保不住，都失去了，到底还有谁来振臂高呼。那个死去而又不能死的人，是我的同胞，更是我的同类，我在哀恸我自己。——云南，十一”.[^1]
 
 
-[^1]:[留言内容引用自matters.news@Nikko,有删减](https://matters.news/@Nikko/%E6%88%91%E4%BB%AC%E7%9A%84%E5%A4%B1%E5%8E%BB%E5%BF%85%E9%A1%BB%E6%98%AF%E6%97%A0%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84-%E7%BA%AA%E5%BF%B5%E6%9D%8E%E6%96%87%E4%BA%AE-bafyreigvcuvdsejcg6e42dcqvrckr7o6lbinyikqvnrbjcmemwbdniy4ky)
+
+
+[^1]: [留言内容引用自matters.news@Nikko,有删减](https://matters.news/@Nikko/%E6%88%91%E4%BB%AC%E7%9A%84%E5%A4%B1%E5%8E%BB%E5%BF%85%E9%A1%BB%E6%98%AF%E6%97%A0%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84-%E7%BA%AA%E5%BF%B5%E6%9D%8E%E6%96%87%E4%BA%AE-bafyreigvcuvdsejcg6e42dcqvrckr7o6lbinyikqvnrbjcmemwbdniy4ky)
