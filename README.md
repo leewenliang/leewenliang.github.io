@@ -38,4 +38,4 @@
 
 
 
-留言内容引用自[matters.news@Nikko]有删减(https://matters.news/@Nikko/%E6%88%91%E4%BB%AC%E7%9A%84%E5%A4%B1%E5%8E%BB%E5%BF%85%E9%A1%BB%E6%98%AF%E6%97%A0%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84-%E7%BA%AA%E5%BF%B5%E6%9D%8E%E6%96%87%E4%BA%AE-bafyreigvcuvdsejcg6e42dcqvrckr7o6lbinyikqvnrbjcmemwbdniy4ky)
+留言内容引用自[matters.news@Nikko](https://matters.news/@Nikko/%E6%88%91%E4%BB%AC%E7%9A%84%E5%A4%B1%E5%8E%BB%E5%BF%85%E9%A1%BB%E6%98%AF%E6%97%A0%E5%8F%AF%E6%8C%BD%E5%9B%9E%E7%9A%84-%E7%BA%AA%E5%BF%B5%E6%9D%8E%E6%96%87%E4%BA%AE-bafyreigvcuvdsejcg6e42dcqvrckr7o6lbinyikqvnrbjcmemwbdniy4ky)有删减
